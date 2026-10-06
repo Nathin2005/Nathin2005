@@ -32,4 +32,4 @@ Seeking opportunities to apply my AI, Data Science, and Web Development skills t
 ## Connect With Me
 📧 Email: palanijayanthi2@gmail.com
 
-💼 LinkedIn: Add your LinkedIn profile link here
+💼 LinkedIn: www.linkedin.com/in/nathinp
